@@ -1,2 +1,0 @@
-Heskell Curry
-
